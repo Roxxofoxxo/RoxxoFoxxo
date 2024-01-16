@@ -1,4 +1,4 @@
-Hi, I'm Roxy, I'm 16 and a trans goth bitch on the internet who's a tech nerd and programmer. 
+Hi, I'm Roxy, I'm 16 and a trans goth bitch on the internet who's a tech nerd, programmer, skateboarder, and amateur photographer. 
 I'm horrible when it comes to programming so if you know what you're doing please help me 💀 
 
 I'm a furry (my fursona is a fox/skunk hybrid) and I'm also mainly a metalhead but also enjoy hardcore punk, hard rock, and some alternative rock/rock music so if you have any recommendations just let me know. 
