@@ -1,8 +1,7 @@
-Hi, I'm Roxy, I'm just a gal who happens to be a tech nerd and a furry,  
- I'm also a huge fire alarm nerd, I love photography and I'm a metalhead :3
+Hi, I'm Roxy, I'm 16 and a trans goth bitch on the internet who's a tech nerd and programmer. 
+I'm horrible when it comes to programming so if you know what you're doing please help me 💀 
 
-I'm horrible when it comes to programming so ye don't ask me for help cuz I don't even know what I'm doing 💀
-
+I'm a furry (my fursona is a fox/skunk hybrid) and I'm also mainly a metalhead but also enjoy hardcore punk, hard rock, and some alternative rock/rock music so if you have any recommendations just let me know. 
 
 
 <!---
