@@ -3,7 +3,7 @@ Hi, I'm Roxy, I'm just a gal who happens to be a tech nerd and a furry,
 
 I'm horrible when it comes to programming so ye don't ask me for help cuz I don't even know what I'm doing 💀
 
-Contact me on discord @ Roxy <3#3098
+
 
 <!---
 RoxxoFoxxo/RoxxoFoxxo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
